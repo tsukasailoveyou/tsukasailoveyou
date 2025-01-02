@@ -2,4 +2,5 @@ hii I'm rory/ro . infp 🎀 . she / her 🖤
       dm on tg  :: @R00RYXD
 
 
-![Uploading 4bcda9de2a10f0ea38799661936d0c17.gif…]()
+
+![Uploading 1b26f112176310e2b260da81899d05f2.gif…]()
