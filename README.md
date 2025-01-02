@@ -1,6 +1,6 @@
-hii I'm rory/ro . infp 🎀 . she / her 🖤
+hii I'm rory/ro . infp 🎀 . she / her 🖤 https://romyvenomlol.carrd.co
       
-        dm on tg  :: @R00RYXD
+        dm on tg  :: @R00RYXD  
 
 ищу людей которые будут мне сосать пиши Я
 
